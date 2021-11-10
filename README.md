@@ -57,6 +57,8 @@
 
 
 
+
+
 Notebook Gamer Acer Predator 300 PH315-52-79VM
 Marca: Acer
 Processador: 9º geração Intel Core i7-9750H de 2.60GHz até 4.50GHz
